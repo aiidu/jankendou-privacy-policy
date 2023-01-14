@@ -1,0 +1,1 @@
+# jankendou-privacy-policy
